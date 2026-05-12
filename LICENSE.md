@@ -1,4 +1,4 @@
-#  
+#  Experience kaizen like never before with kaizen Script new, the #1 Script. Includes aimbot and auto-heal for unbeatable performance.
 
 
 
